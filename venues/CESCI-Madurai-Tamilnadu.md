@@ -19,9 +19,9 @@ Tamilnadu, South India, India
 
 ## :round_pushpin: Location Map
 
-1. :round_pushpin: [CESCI Map Location](https://maps.app.goo.gl/JzuHuRKgw8qGadtq8)
-2. :round_pushpin: [From Madurai Airport ](https://maps.app.goo.gl/evG29MCAfL7pY4ba7)
-3. :round_pushpin: [From Madurai Railway station](https://maps.app.goo.gl/SJqsKdRodZeepG7B6)
-4. :round_pushpin: [From Mattuthavani Integrated Bus](https://maps.app.goo.gl/xqwikaQf6CNk7HDW7)
+1. :pushpin: [CESCI Map Location](https://maps.app.goo.gl/JzuHuRKgw8qGadtq8)
+2. :airplane: [From Madurai Airport ](https://maps.app.goo.gl/evG29MCAfL7pY4ba7)
+3. :train: [From Madurai Railway station](https://maps.app.goo.gl/SJqsKdRodZeepG7B6)
+4. :bus: [From Mattuthavani Integrated Bus](https://maps.app.goo.gl/xqwikaQf6CNk7HDW7)
 
 ## Metta Vipassana Way
