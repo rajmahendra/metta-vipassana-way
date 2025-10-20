@@ -11,10 +11,10 @@ More detail about the organization you can find it at https://www.cesciindia.in
 
 ## :world_map: Address
 
-**CESCI, Natham – Madurai**
-NH, Majagram, Kadavur,
-Chathrapatti Post,
-Madurai – 625 014.
+**CESCI, Natham – Madurai**\
+NH, Majagram, Kadavur,\
+Chathrapatti Post,\
+Madurai – 625 014.\
 Tamilnadu, South India, India
 
 ## :round_pushpin: Location Map
