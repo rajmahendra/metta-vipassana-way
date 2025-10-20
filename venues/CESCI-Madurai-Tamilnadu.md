@@ -17,21 +17,11 @@ Chathrapatti Post,
 Madurai – 625 014.
 Tamilnadu, South India, India
 
-
-
 ## Location Map
 
-![CESCI Map Location](https://maps.app.goo.gl/JzuHuRKgw8qGadtq8)
-
-
-![From Madurai Airport ](https://www.google.com/maps/dir/Madurai+Airport,+Airport+Road,+Madurai,+Tamil+Nadu,+India/CESCI,+Majagram,+Near+Pavana+Vilakku,+Natham+Road,+Madurai,+625014,+Manapparai+-+Kadavur+Road,+Tamil+Nadu+625014,+India/@9.9620676,78.0490016,32863m/data=!3m2!1e3!4b1!4m14!4m13!1m5!1m1!1s0x3b00d069b8182015:0x90cf5814e6fb7f17!2m2!1d78.0894782!2d9.8382282!1m5!1m1!1s0x3b00b8c240000001:0xf7567c5e71760a7b!2m2!1d78.1724439!2d10.0858793!3e0?hl=en-US&entry=ttu&g_ep=EgoyMDI1MTAxNC4wIKXMDSoASAFQAw%3D%3D)
-
-
-![From Madurai Railway station](https://maps.app.goo.gl/SJqsKdRodZeepG7B6)
-
-
-
-![From Mattuthavani Integrated Bus](https://maps.app.goo.gl/xqwikaQf6CNk7HDW7)
-
+1. [CESCI Map Location](https://maps.app.goo.gl/JzuHuRKgw8qGadtq8)
+2. [From Madurai Airport ](https://maps.app.goo.gl/evG29MCAfL7pY4ba7)
+3. [From Madurai Railway station](https://maps.app.goo.gl/SJqsKdRodZeepG7B6)
+4. [From Mattuthavani Integrated Bus](https://maps.app.goo.gl/xqwikaQf6CNk7HDW7)
 
 ## Metta Vipassana Way
