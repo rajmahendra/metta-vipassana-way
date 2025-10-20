@@ -1,16 +1,17 @@
-## Event Schedule
+# 🧘‍♂️ Metta Vipassana Meditation Retreat – 10-Day Daily Schedule
+# 🧘‍♀️ மெத்தா விபஸ்ஸனா தியான முகாம் – 10 நாட்கள் தினசரி அட்டவணை
 
-
-
-5:00 AM Wake-up.
-5:30 AM Morning Services in Dhamma Hall.
-5:45 AM Group Sitting and Walking Meditation.
-7:00 AM Breakfast.
-8:00 AM Individual sitting and walking Mediation.
-9:00 AM Individual Interviews as per timetable.
-11:00 AM Lunch & rest period.
-1:30 PM Walking and sitting Mediation.
-5:30 PM Tea Time.
-6:30 PM Dhamma Talk
-8:00 PM Post Dhamma Talk walking and Meditation.
-10:00 PM Sleep Time.
+| Time                     | Activity (English)                            | செயல்பாடு (தமிழ்)                          |
+|--------------------------|-----------------------------------------------|--------------------------------------------|
+| **5:00 AM – 5:30 AM**    | Wake-up                                       | எழுச்சி                                     |
+| **5:30 AM – 5:45 AM**    | :lotus_position_woman: Morning Services in Dhamma Hall               | :lotus_position_woman: தர்ம மண்டபத்தில் காலை சேவைகள்              |
+| **5:45 AM – 7:00 AM**    | Group Sitting and Walking Meditation          | குழு அமர்வு மற்றும் நடை தியானம்             |
+| **7:00 AM – 8:00 AM**    | :bread: Breakfast                                     | :bread: காலை உணவு                                  |
+| **8:00 AM – 9:00 AM**    | :lotus_position: Individual Sitting and Walking Meditation     | :lotus_position: தனிப்பட்ட அமர்வு மற்றும் நடை தியானம்        |
+| **9:00 AM – 11:00 AM**   | :busts_in_silhouette: Individual Interviews (as per schedule)       | :busts_in_silhouette: நேர அட்டவணைப்படி தனிப்பட்ட நேர்காணல்கள்    |
+| **11:00 AM – 1:30 PM**   | :spaghetti: Lunch & Rest Period                           | :spaghetti: மதிய உணவு மற்றும் ஓய்வு நேரம்               |
+| **1:30 PM – 5:30 PM**    | :lotus_position: Walking and Sitting Meditation                | :lotus_position: நடை மற்றும் அமர்வு தியானம்                  |
+| **5:30 PM – 6:30 PM**    | :teapot: Tea Time                                      | :teapot: தேநீர் நேரம்                                |
+| **6:30 PM – 8:00 PM**    | Dhamma Talk                                   | தர்ம உரை                                    |
+| **8:00 PM – 10:00 PM**   | Post-Talk Walking and Meditation              | உரைக்கு பின் நடை மற்றும் தியானம்            |
+| **10:00 PM – 5:00 AM**   | :sleeping_bed: Sleep Time                                    | :sleeping_bed: உறங்கும் நேரம்                              |
