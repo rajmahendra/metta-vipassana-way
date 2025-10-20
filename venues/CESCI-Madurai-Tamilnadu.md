@@ -9,7 +9,7 @@ CESCI embodies direct solidarity with social organizations and activists advocat
 More detail about the organization you can find it at https://www.cesciindia.in
 
 
-## Address
+## :round_pushpin: Address
 
 **CESCI, Natham – Madurai**
 NH, Majagram, Kadavur,
@@ -17,11 +17,11 @@ Chathrapatti Post,
 Madurai – 625 014.
 Tamilnadu, South India, India
 
-## Location Map
+## :round_pushpin: Location Map
 
-1. [CESCI Map Location](https://maps.app.goo.gl/JzuHuRKgw8qGadtq8)
-2. [From Madurai Airport ](https://maps.app.goo.gl/evG29MCAfL7pY4ba7)
-3. [From Madurai Railway station](https://maps.app.goo.gl/SJqsKdRodZeepG7B6)
-4. [From Mattuthavani Integrated Bus](https://maps.app.goo.gl/xqwikaQf6CNk7HDW7)
+1. :round_pushpin: [CESCI Map Location](https://maps.app.goo.gl/JzuHuRKgw8qGadtq8)
+2. :round_pushpin: [From Madurai Airport ](https://maps.app.goo.gl/evG29MCAfL7pY4ba7)
+3. :round_pushpin: [From Madurai Railway station](https://maps.app.goo.gl/SJqsKdRodZeepG7B6)
+4. :round_pushpin: [From Mattuthavani Integrated Bus](https://maps.app.goo.gl/xqwikaQf6CNk7HDW7)
 
 ## Metta Vipassana Way
