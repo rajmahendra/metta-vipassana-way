@@ -22,29 +22,38 @@ More detail about the organization you can find it at https://www.cesciindia.in
 ## :world_map: Address
 
 **CESCI, Natham – Madurai**\
-NH, Majagram, Kadavur,\
+Majagram, Kadavur,\
 Chathrapatti Post,\
 Madurai – 625 014.\
 Tamilnadu, South India, India
 
-CESCI, நத்தம் – மதுரை தேசிய நெடுஞ்சாலை (NH), மஜாகிராமம், கடவூர், சத்திரப்பட்டி அஞ்சல் (போஸ்ட்), மதுரை – 625 014. தமிழ்நாடு, தென்னிந்தியா, இந்தியா
+**CESCI, நத்தம் – மதுரை தேசிய நெடுஞ்சாலை**\
+மஜாகிராமம், கடவூர்,\
+சத்திரப்பட்டி அஞ்சல் (போஸ்ட்),\
+மதுரை – 625 014.\
+ தமிழ்நாடு, தென்னிந்தியா, இந்தியா
+
 
 ## :round_pushpin: Location Map
 
 1. :pushpin: [CESCI Map Location - CESCI இருக்கும் இடம்](https://maps.app.goo.gl/JzuHuRKgw8qGadtq8)
-2. :airplane: [From Madurai Airport ](https://maps.app.goo.gl/evG29MCAfL7pY4ba7)
-3. :train: [From Madurai Railway station](https://maps.app.goo.gl/SJqsKdRodZeepG7B6)
-4. :bus: [From Mattuthavani Integrated Bus](https://maps.app.goo.gl/xqwikaQf6CNk7HDW7)
+2. :airplane: [From Madurai Airport - மதுரை விமான நிலையத்திலிருந்து](https://maps.app.goo.gl/evG29MCAfL7pY4ba7)
+3. :train: [From Madurai Railway station - மதுரை ரயில்வே நிலையத்திலிருந்து](https://maps.app.goo.gl/SJqsKdRodZeepG7B6)
+4. :bus: [From Mattuthavani Integrated Bus - மத்துத்தவாணி ஒருங்கிணைந்த பஸ்நிலையத்திலிருந்து](https://maps.app.goo.gl/xqwikaQf6CNk7HDW7)
 
 
-## How to reach CESCI Centre - Bus
+## :bus: How to reach CESCI Centre - Bus
 
 * To reach CESCI, there are bus connections from Madurai Periyar bus stand or from Railway junction.
 * Bus number 23P, 23T, 23Z, 23P/1, series going to Lingavadi, Chinnakasampatti, Vathipatti, Parali, Reddiyapatti, and 62 B going to Natham  will stop at CESCI Centre/Majagram.
 * There are buses from Mattuthavani bus stand to Natham (Private and Govt.) which will stop at Kadavur village on request. CESCI is half km from Kadavur.
 
+* CESCI சென்டருக்கு செல்ல, மதுரை பேரியார் பஸ்ஸ்நிலையம் அல்லது ரயில்வே ஜங்ஷனில் இருந்து பஸ்கள் கிடைக்கின்றன.
+* 23P, 23T, 23Z, 23P/1 ஆகிய பஸ் எண்கள் மற்றும் Lingavadi, Chinnakasampatti, Vathipatti, Parali, Reddiyapatti பகுதிகளுக்குச் செல்லும் தொடரில் உள்ள பஸ்கள், மற்றும் Natham செல்லும் 62B பஸ்—all CESCI சென்டர் / Majagram அருகே நிற்கும்.
+* மத்துத்தவாணி பஸ்நிலையத்தில் இருந்து Natham நோக்கி (அரசு மற்றும் தனியார்) பஸ்கள் செல்லும். அவை கேட்டால் Kadavur கிராமத்தில் நிற்கும். Kadavur-இல் இருந்து CESCI சென்டர் அரை கிலோமீட்டர் தொலைவில் உள்ளது
+
 ## :busts_in_silhouette: Contact
 
 1. :phone: +917680936123 - Raj - English, Tamil -
-2. :phone: +917506106787 - Shubam - English, Hindi, Marathi
+2. :phone: +917506106787 - Shubham - English, Hindi, Marathi
 3. :email: Email: hello@mettavipassana.org
