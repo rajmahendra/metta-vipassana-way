@@ -9,7 +9,7 @@ CESCI embodies direct solidarity with social organizations and activists advocat
 More detail about the organization you can find it at https://www.cesciindia.in
 
 
-## :round_pushpin: Address
+## :world_map: Address
 
 **CESCI, Natham – Madurai**
 NH, Majagram, Kadavur,
