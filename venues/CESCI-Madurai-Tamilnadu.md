@@ -24,4 +24,11 @@ Tamilnadu, South India, India
 3. :train: [From Madurai Railway station](https://maps.app.goo.gl/SJqsKdRodZeepG7B6)
 4. :bus: [From Mattuthavani Integrated Bus](https://maps.app.goo.gl/xqwikaQf6CNk7HDW7)
 
+
+## How to reach CESCI Centre - Bus
+
+* To reach CESCI, there are bus connections from Madurai Periyar bus stand or from Railway junction.
+* Bus number 23P, 23T, 23Z, 23P/1, series going to Lingavadi, Chinnakasampatti, Vathipatti, Parali, Reddiyapatti, and 62 B going to Natham  will stop at CESCI Centre/Majagram.
+* There are buses from Mattuthavani bus stand to Natham (Private and Govt.) which will stop at Kadavur village on request. CESCI is half km from Kadavur.
+
 ## Metta Vipassana Way
