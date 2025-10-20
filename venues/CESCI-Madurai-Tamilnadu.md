@@ -31,7 +31,7 @@ Tamilnadu, South India, India
 
 
 
-![Mattuthavani Integrated Bus Terminus](https://maps.app.goo.gl/xqwikaQf6CNk7HDW7)
+![From Mattuthavani Integrated Bus](https://maps.app.goo.gl/xqwikaQf6CNk7HDW7)
 
 
 ## Metta Vipassana Way
