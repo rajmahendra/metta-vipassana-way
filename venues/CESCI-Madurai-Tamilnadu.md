@@ -31,4 +31,8 @@ Tamilnadu, South India, India
 * Bus number 23P, 23T, 23Z, 23P/1, series going to Lingavadi, Chinnakasampatti, Vathipatti, Parali, Reddiyapatti, and 62 B going to Natham  will stop at CESCI Centre/Majagram.
 * There are buses from Mattuthavani bus stand to Natham (Private and Govt.) which will stop at Kadavur village on request. CESCI is half km from Kadavur.
 
-## Metta Vipassana Way
+## :busts_in_silhouette: Contact
+
+1. :phone: +917680936123 - Raj - English, Tamil -
+2. :phone: +917506106787 - Shubam - English, Hindi, Marathi
+3. :email: Email: hello@mettavipassana.org
