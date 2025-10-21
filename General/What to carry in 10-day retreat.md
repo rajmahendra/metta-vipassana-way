@@ -1,3 +1,8 @@
+
+
+> [!IMPORTANT]
+> Please read the article completely. This article have both English and Tamil translation. தயவுசெய்து கட்டுரையை முழுமையாகப் படியுங்கள். இந்தக் கட்டுரை ஆங்கிலம் மற்றும் தமிழ் மொழிபெயர்ப்புகளைக் கொண்டுள்ளது.
+
 ## 🧳 What to Carry for the 10-Day Retreat - 10 நாட்கள் TWIM மெத்தா விபஸ்ஸனா தியான முகாமுக்கு கொண்டு வர வேண்டியவை
 
 | Item                                                                           | பொருள்                                                                    |
@@ -31,3 +36,17 @@
 | Books, Kindle, Radio – Noble silence will be observed.              | புத்தகங்கள், கிண்டில், ரேடியோ – மௌன வாழ்வு கடைபிடிக்கப்படும்.     |
 | Modern or flashy clothing – Please avoid.                            | நவீன அல்லது கவர்ச்சியான உடைகள் – தயவுசெய்து தவிர்க்கவும்.        |
 | Outside food – Sattvic vegetarian food will be provided.             | வெளி உணவு – சத்த்வீக் சைவ உணவு வழங்கப்படும்.                     |
+
+
+## :busts_in_silhouette: Contact
+
+1. :phone: +917680936123 - Raj - English, Tamil -
+2. :phone: +917506106787 - Shubham - English, Hindi, Marathi
+3. :email: Email: hello@mettavipassana.org
+
+##  Follow us on web
+* [Website - Old](https://www.dhammasukha.in) |  [Website - Under construction](https://www.mettavipassana.org)
+* [Youtube - English](https://www.youtube.com/@mettavipassanaway) |  [Youtube - Tamil](https://www.youtube.com/@mettavipassanawaytamil)
+* [Facebook](https://www.facebook.com/mettavipassanaway)
+* [Instagram](https://www.instagram.com/mettavipassanaway)
+* [Linkedin](https://www.linkedin.com/company/109274422)

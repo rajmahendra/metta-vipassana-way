@@ -1,3 +1,8 @@
+
+
+> [!IMPORTANT]
+> Please read the article completely. This article have both English and Tamil translation. தயவுசெய்து கட்டுரையை முழுமையாகப் படியுங்கள். இந்தக் கட்டுரை ஆங்கிலம் மற்றும் தமிழ் மொழிபெயர்ப்புகளைக் கொண்டுள்ளது.
+
 # 🧘‍♂️ Metta Vipassana Meditation Retreat – 10-Day Daily Schedule
 # 🧘‍♀️ மெத்தா விபஸ்ஸனா தியான முகாம் – 10 நாட்கள் தினசரி அட்டவணை
 
@@ -15,3 +20,18 @@
 | **6:30 PM – 8:00 PM**    | Dhamma Talk                                   | தர்ம உரை                                    |
 | **8:00 PM – 10:00 PM**   | Post-Talk Walking and Meditation              | உரைக்கு பின் நடை மற்றும் தியானம்            |
 | **10:00 PM – 5:00 AM**   | :sleeping_bed: Sleep Time                                    | :sleeping_bed: உறங்கும் நேரம்                              |
+
+
+
+## :busts_in_silhouette: Contact
+
+1. :phone: +917680936123 - Raj - English, Tamil -
+2. :phone: +917506106787 - Shubham - English, Hindi, Marathi
+3. :email: Email: hello@mettavipassana.org
+
+##  Follow us on web
+* [Website - Old](https://www.dhammasukha.in) |  [Website - Under construction](https://www.mettavipassana.org)
+* [Youtube - English](https://www.youtube.com/@mettavipassanaway) |  [Youtube - Tamil](https://www.youtube.com/@mettavipassanawaytamil)
+* [Facebook](https://www.facebook.com/mettavipassanaway)
+* [Instagram](https://www.instagram.com/mettavipassanaway)
+* [Linkedin](https://www.linkedin.com/company/109274422)

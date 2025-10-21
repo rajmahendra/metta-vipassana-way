@@ -3,9 +3,6 @@
 > [!IMPORTANT]
 > Please read the article completely. This article have both English and Tamil translation. தயவுசெய்து கட்டுரையை முழுமையாகப் படியுங்கள். இந்தக் கட்டுரை ஆங்கிலம் மற்றும் தமிழ் மொழிபெயர்ப்புகளைக் கொண்டுள்ளது.
 
-
-
-
 ***
 
 # CESCI and Madurai Travel Guide
@@ -22,6 +19,9 @@ The **Center for Experiencing Socio-Cultural Interaction (CESCI)** is a non-prof
 * **Key Function:** It serves as an essential retreat and training center for **social activists** and grassroots workers, offering a space for reflection, rest, and skill development away from the demanding nature of their work with marginalized communities (the landless, women, etc.).
 * **Location:** CESCI is located approximately **20-25 km** outside the Madurai city center in a serene, green setting near the Natham-Madurai National Highway (NH 785).
 
+
+URL : https://www.cesciindia.in/
+
 ---
 
 ## 2. Short Description of Madurai City
@@ -32,6 +32,8 @@ The **Center for Experiencing Socio-Cultural Interaction (CESCI)** is a non-prof
 * **Key Landmark:** The city's primary attraction is the breathtaking **Meenakshi Amman Temple**, a massive architectural masterpiece dedicated to Goddess Meenakshi.
 * **Nickname:** It is famously nicknamed **"Thoonga Nagaram"** (The city that never sleeps) due to its historically vibrant commercial and nightlife activities.
 * **Economy:** Today, Madurai is a significant commercial, industrial, and educational hub for the southern region of Tamil Nadu.
+
+URL: https://en.wikipedia.org/wiki/Madurai
 
 ---
 
@@ -89,6 +91,8 @@ CESCI is located outside the main city near the Natham Road, about **20-25 km** 
 * **முக்கிய செயல்பாடு:** இது சமூக ஆர்வலர்கள் மற்றும் களப்பணியாளர்களுக்கான பயிற்சி மற்றும் ஓய்வெடுக்கும் மையமாக செயல்படுகிறது. குறிப்பாக நிலமற்றவர்கள், பெண்கள் மற்றும் விளிம்புநிலை சமூகங்களுக்காக உழைக்கும் செயல்பாட்டாளர்களுக்கு, அவர்களின் பணிகளின் அழுத்தத்தில் இருந்து மீண்டு வர இது ஒரு இடமாக உள்ளது.
 * **அமைவிடம்:** இது மதுரை நகரின் மையத்திலிருந்து சுமார் **20-25 கி.மீ** தொலைவில், நாத்தம்-மதுரை தேசிய நெடுஞ்சாலை (NH 785) அருகில், அமைதியான சூழலில் அமைந்துள்ளது.
 
+URL : https://www.cesciindia.in
+
 ---
 
 ## 2. மதுரை நகரம் பற்றிய சிறு விளக்கம்
@@ -99,6 +103,8 @@ CESCI is located outside the main city near the Natham Road, about **20-25 km** 
 * **முக்கிய அடையாளம்:** நகரின் மையத்தில் அமைந்துள்ள அற்புதமான கட்டிடக்கலையைக் கொண்ட **மீனாட்சி அம்மன் கோவில்** இதன் முக்கிய அடையாளமாகும்.
 * **புனைப்பெயர்:** அதன் துடிப்பான வர்த்தகம் மற்றும் இரவு நேர செயல்பாடுகள் காரணமாக இது **"தூங்கா நகரம்"** என்று பிரபலமாக அறியப்படுகிறது.
 * **பொருளாதாரம்:** தென் தமிழகத்திற்கான ஒரு முக்கியமான வணிகம், தொழில் மற்றும் கல்வி மையமாக மதுரை விளங்குகிறது.
+
+URL: https://ta.wikipedia.org/wiki/%E0%AE%AE%E0%AE%A4%E0%AF%81%E0%AE%B0%E0%AF%88
 
 ---
 
