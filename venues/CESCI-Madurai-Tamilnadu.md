@@ -1,13 +1,14 @@
 
-
 > [!IMPORTANT]
 > Please read the article completely. This article have both English and Tamil translation. தயவுசெய்து கட்டுரையை முழுமையாகப் படியுங்கள். இந்தக் கட்டுரை ஆங்கிலம் மற்றும் தமிழ் மொழிபெயர்ப்புகளைக் கொண்டுள்ளது.
 
 ***
 
-# CESCI and Madurai Travel Guide
+# CESCI and Madurai Travel Guide - CESCI மற்றும் மதுரைக்கான பயண வழிகாட்டி
 
 This guide provides a short description of the Center for Experiencing Socio-Cultural Interaction (**CESCI**) and the ancient city of **Madurai**, along with detailed travel options using flight, train, and bus from major Indian and international locations.
+
+இது, சமூக-கலாச்சார தொடர்புகளை அனுபவிக்கும் மையமான (**CESCI**) மற்றும் பண்டைய நகரமான **மதுரை** பற்றிய ஒரு சிறிய விளக்கத்தையும், அத்துடன் இந்தியா மற்றும் வெளிநாடுகளில் உள்ள முக்கிய இடங்களிலிருந்து விமானம், ரயில் மற்றும் பேருந்து மூலம் பயணம் செய்வதற்கான விரிவான வழிகளையும் வழங்குகிறது.
 
 ---
 
@@ -74,12 +75,6 @@ CESCI is located outside the main city near the Natham Road, about **20-25 km** 
 | **Taxi/Cab** | **Convenience and speed.** | Book a taxi from the Airport, Railway Station, or Bus Stands. This is the easiest and fastest option, taking about **30-45 minutes** to reach CESCI directly. |
 | **Auto-Rickshaw** | Direct, low-cost option. | Available from the city center. **Ensure you negotiate the fare beforehand**, as the destination is outside the standard city limits. |
 | **Local Bus** | Budget travel. | Take a local bus from the **Mattuthavani Bus Stand** that is bound for **Natham**. Alight at the nearest stop to the CESCI address (Kadavur/Chathirapatti area). You will need to take a short auto-rickshaw ride for the final few kilometers from the highway drop-off point. |
-
----
-
-# CESCI மற்றும் மதுரைக்கான பயண வழிகாட்டி
-
-இது, சமூக-கலாச்சார தொடர்புகளை அனுபவிக்கும் மையமான (**CESCI**) மற்றும் பண்டைய நகரமான **மதுரை** பற்றிய ஒரு சிறிய விளக்கத்தையும், அத்துடன் இந்தியா மற்றும் வெளிநாடுகளில் உள்ள முக்கிய இடங்களிலிருந்து விமானம், ரயில் மற்றும் பேருந்து மூலம் பயணம் செய்வதற்கான விரிவான வழிகளையும் வழங்குகிறது.
 
 ---
 
