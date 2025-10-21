@@ -1,8 +1,7 @@
 
 
- [!IMPORTANT]
-> Please read the article completely. This article have both English and Tamil translation.
-> தயவுசெய்து கட்டுரையை முழுமையாகப் படியுங்கள். இந்தக் கட்டுரை ஆங்கிலம் மற்றும் தமிழ் மொழிபெயர்ப்புகளைக் கொண்டுள்ளது.
+> [!IMPORTANT]
+> Please read the article completely. This article have both English and Tamil translation. தயவுசெய்து கட்டுரையை முழுமையாகப் படியுங்கள். இந்தக் கட்டுரை ஆங்கிலம் மற்றும் தமிழ் மொழிபெயர்ப்புகளைக் கொண்டுள்ளது.
 
 
 
