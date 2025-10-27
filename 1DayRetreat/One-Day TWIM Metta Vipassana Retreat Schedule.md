@@ -21,7 +21,7 @@
 ******
 
 ## 🧘‍♀️ One-Day TWIM Metta Vipassana Retreat Schedule  
-### 🗓️ Date: **8th November 2025** 📍Venue: **CESCI – Madurai**
+### 🗓️ Date: **8-Nov-2025** 📍Venue: **CESCI – Madurai**
 
 | 🕒 **Time**           | 🧭 **Session**                                                                 |
 |----------------------|--------------------------------------------------------------------------------|
