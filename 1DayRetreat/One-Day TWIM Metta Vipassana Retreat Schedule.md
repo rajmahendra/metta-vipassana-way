@@ -39,3 +39,19 @@
 | **3:15 – 3:45 PM**    | 🚶 Walking Meditation                                                         |
 | **3:45 – 4:45 PM**    | 🔍 Sitting/Walking Meditation & 1-to-1 Introspection                          |
 | **4:45 – 5:30 PM**    | 📖 How to Continue the Practice                                               |
+
+***
+
+
+## :busts_in_silhouette: Contact
+
+1. :phone: +917680936123 - Raj - English, Tamil -
+2. :phone: +917506106787 - Shubham - English, Hindi, Marathi
+3. :email: Email: hello@mettavipassana.org
+
+##  Follow us on web
+* [Website - Old](https://www.dhammasukha.in) |  [Website - Under construction](https://www.mettavipassana.org)
+* [Youtube - English](https://www.youtube.com/@mettavipassanaway) |  [Youtube - Tamil](https://www.youtube.com/@mettavipassanawaytamil)
+* [Facebook](https://www.facebook.com/mettavipassanaway)
+* [Instagram](https://www.instagram.com/mettavipassanaway)
+* [Linkedin](https://www.linkedin.com/company/109274422)
