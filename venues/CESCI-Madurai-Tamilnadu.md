@@ -34,7 +34,7 @@ URL : https://www.cesciindia.in/
 * **Nickname:** It is famously nicknamed **"Thoonga Nagaram"** (The city that never sleeps) due to its historically vibrant commercial and nightlife activities.
 * **Economy:** Today, Madurai is a significant commercial, industrial, and educational hub for the southern region of Tamil Nadu.
 
-URL: https://en.wikipedia.org/wiki/Madurai
+URL: [Madurai : Wikipedia](https://en.wikipedia.org/wiki/Madurai)
 
 ---
 
@@ -99,7 +99,7 @@ URL : https://www.cesciindia.in
 * **புனைப்பெயர்:** அதன் துடிப்பான வர்த்தகம் மற்றும் இரவு நேர செயல்பாடுகள் காரணமாக இது **"தூங்கா நகரம்"** என்று பிரபலமாக அறியப்படுகிறது.
 * **பொருளாதாரம்:** தென் தமிழகத்திற்கான ஒரு முக்கியமான வணிகம், தொழில் மற்றும் கல்வி மையமாக மதுரை விளங்குகிறது.
 
-URL: https://ta.wikipedia.org/wiki/%E0%AE%AE%E0%AE%A4%E0%AF%81%E0%AE%B0%E0%AF%88
+URL: [மதுரை : விக்கிப்பீடியா](https://ta.wikipedia.org/wiki/%E0%AE%AE%E0%AE%A4%E0%AF%81%E0%AE%B0%E0%AF%88)
 
 ---
 
