@@ -176,10 +176,9 @@ CESCI, மதுரை நகரின் மையத்திலிருந�
 * மத்துத்தவாணி பஸ்நிலையத்தில் இருந்து Natham நோக்கி (அரசு மற்றும் தனியார்) பஸ்கள் செல்லும். அவை கேட்டால் Kadavur கிராமத்தில் நிற்கும். Kadavur-இல் இருந்து CESCI சென்டர் அரை கிலோமீட்டர் தொலைவில் உள்ளது
 
 ## :busts_in_silhouette: Contact
-
-* :phone: +917680936123 - Raj - (English, Tamil)
-* :phone: +917506106787 - Shubham - (English, Hindi, Marathi)
-* :email: Email: hello@mettavipassana.org
+1. :phone: +917680936123 - [Rajmahendra](/AboutRajmahendra.md) - English, Tamil 
+2. :phone: +917506106787 - [Shubham](https://www.dhammasukha.in/about-us/teachers/shubham-mohod) - English, Hindi, Marathi
+3. :email: Email: hello@mettavipassana.org
 
 ##  Follow us on web
 * [Website - Old](https://www.dhammasukha.in) |  [Website - Under construction](https://www.mettavipassana.org)
