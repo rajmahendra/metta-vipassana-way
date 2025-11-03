@@ -1,6 +1,6 @@
-
 > [!IMPORTANT]
-> For english translation check in our website. மொழிபெயர்ப்புக்கு எங்கள் வலைத்தளத்தில் சரிபார்க்கவும்.  [About rajmahendra]()
+> இந்தப் பக்கத்தில் ஆங்கிலம் மற்றும் தமிழ் மொழிபெயர்ப்புகள் உள்ளன. தயவுசெய்து முழுமையாகப் படியுங்கள். This page have both English and Tamil translation. Please read completely.
+
 
 ***
 
