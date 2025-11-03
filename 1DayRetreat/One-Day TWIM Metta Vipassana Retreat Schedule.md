@@ -50,9 +50,8 @@
 
 
 ## :busts_in_silhouette: Contact
-
-1. :phone: +917680936123 - Raj - English, Tamil -
-2. :phone: +917506106787 - Shubham - English, Hindi, Marathi
+1. :phone: +917680936123 - [Rajmahendra](/AboutRajmahendra.md) - English, Tamil 
+2. :phone: +917506106787 - [Shubham](https://www.dhammasukha.in/about-us/teachers/shubham-mohod) - English, Hindi, Marathi
 3. :email: Email: hello@mettavipassana.org
 
 ##  Follow us on web
