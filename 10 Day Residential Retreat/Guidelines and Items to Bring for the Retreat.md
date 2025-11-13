@@ -137,7 +137,7 @@
 ## 💬 Contact
 
 1. [Ven.Bhikkhu Dhammagavesi](https://www.dhammasukha.in/about-us/teachers/bhikkhu-dhammagavesi) Gujarati, Hindi, English
-2. :phone: +917680936123 - [Rajmahendra](/AboutRajmahendra.md) - Tamil, English
+2. :phone: +917680936123 - [Rajmahendra](/AboutRajmahendra.md) - Tamil,Hindi, English
 3. :phone: +917506106787 - [Shubham](https://www.dhammasukha.in/about-us/teachers/shubham-mohod) - Hindi, Marathi, English
 4. :email: Email: hello@mettavipassana.org
 
