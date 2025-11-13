@@ -5,7 +5,8 @@
 
 ## 🧘 Retreat Guidelines (English) 📜
 
-### ⚠️ **Understanding and gentle Agreement** ⚠️
+
+### ⚠️ **Understanding and Gentle Agreement** ⚠️
 
 ***
 
