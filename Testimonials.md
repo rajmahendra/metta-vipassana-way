@@ -13,3 +13,15 @@
 | The bad qualities I had before the retreat were: impatience, arrogance, insolence/haughtiness, excessive sexual involvement/interest, laziness, anger, and harsh words. All of these have undergone a very great transformation. Furthermore, I have consciously experienced and realized one of the key stages of wisdom: that everything is one within us, and that we are not separate from others. Many thanks to the almighty Nature, to the Buddha, to the Bhante, and to Rajmahendra. |
 | Kannan - Coimbatore - Entrepreneur - Oct 21, 2025 - Online Retreat |
 ****
+
+## :busts_in_silhouette: Contact
+1. :phone: +917680936123 - [Rajmahendra](/AboutRajmahendra.md) - English, Tamil 
+2. :phone: +917506106787 - [Shubham](https://www.dhammasukha.in/about-us/teachers/shubham-mohod) - English, Hindi, Marathi
+3. :email: Email: hello@mettavipassana.org
+
+##  Follow us on web
+* [Website - Old](https://www.dhammasukha.in) |  [Website - Under construction](https://www.mettavipassana.org)
+* [Youtube - English](https://www.youtube.com/@mettavipassanaway) |  [Youtube - Tamil](https://www.youtube.com/@mettavipassanawaytamil)
+* [Facebook](https://www.facebook.com/mettavipassanaway)
+* [Instagram](https://www.instagram.com/mettavipassanaway)
+* [Linkedin](https://www.linkedin.com/company/109274422)
