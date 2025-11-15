@@ -44,12 +44,12 @@
 | **மாலை 4:45 – 5:30**   | 📖 பயணத்தை தொடரும் வழிகள்                                                     |
 
 
-## :busts_in_silhouette: Contact
-1. :phone: +917680936123 - [Rajmahendra](/AboutRajmahendra.md) - English, Tamil 
-2. :phone: +917506106787 - [Shubham](https://www.dhammasukha.in/about-us/teachers/shubham-mohod) - English, Hindi, Marathi
-3. :email: Email: hello@mettavipassana.org
+## 📡 Contact
+1. ☎️ +917680936123 - [Rajmahendra](/AboutRajmahendra.md) - Tamil, Hindi, English
+2. ☎️ +917506106787 - [Shubham](https://www.dhammasukha.in/about-us/teachers/shubham-mohod) - Hindi, Marathi, English
+3. 📧 hello@mettavipassana.org
 
-##  Follow us on web
+## 🕸️ Follow us on web
 * [Website - Old](https://www.dhammasukha.in) |  [Website - Under construction](https://www.mettavipassana.org)
 * [Youtube - English](https://www.youtube.com/@mettavipassanaway) |  [Youtube - Tamil](https://www.youtube.com/@mettavipassanawaytamil)
 * [Facebook](https://www.facebook.com/mettavipassanaway)
