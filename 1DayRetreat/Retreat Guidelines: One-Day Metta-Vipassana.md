@@ -4,8 +4,50 @@
 
 ***
 
+## 🧘 One-Day Metta-Vipassana Retreat - Guidelines
 
-## 🧘 ஒரு நாள் மெத்தா-விபஸ்ஸனா முகாம் வழிகாட்டுதல்கள்
+### 💖 **Mindset & Engagement**
+
+* **Loving-Kindness and Acceptance:** We all come from different beliefs and viewpoints. When sharing or listening, please be mindful and focus on **building acceptance** rather than merely tolerating others. The core of this meditation is **loving-kindness (Metta)**.
+* **Keep a Smile Always:** Maintain a gentle smile throughout the retreat. It costs nothing to be happy on your face, in your mind, and in your heart.
+* **Spiritual Wellbeing, Not a Picnic:** This retreat is dedicated to **spiritual growth and learning**, not socializing or recreation. Please remain mindful and fully engaged in the practice that brought you here.
+* **Be a Supportive Team:** Your adherence to the guidelines helps everyone in the retreat grow.
+* **Kindness in Communication:** We strive to provide the best environment. When sharing any challenges with staff or guides, please do so with **kindness and mindfulness**.
+* **Noble Silence:** Observe **Noble Silence** (no talking, gesturing, or communication) to maximize your spiritual benefit and allow deep concentration.
+
+---
+
+### ⏰ **Discipline & Time**
+
+* **Punctuality is Key:** Please be seated well before the session begins. **Respect everyone's time** by being in the hall promptly.
+* **The Power of Sīla (Morality):** Maintain **high discipline** throughout the day. A strong foundation in moral conduct (Sīla) is essential for deep meditation and insight.
+
+---
+
+### 📵 **Electronic Devices & Meals**
+
+* **Silence Your Devices:** All mobile phones and electronic devices must be **switched off or strictly kept on silent mode** for the duration of the program. This day is your dedicated break from all regular hindrances.
+* **Meal Guidelines:** Please consume **only the food provided by the retreat organizers**. **Strictly avoid snacking outside of designated meal times. No outside food is allowed.**
+
+---
+
+### 👚 **Health & Decorum**
+
+* **Dress Code (Simple and Modest):** Wear **simple, comfortable cotton clothing** that covers the shoulders, stomach, and knees. Avoid sleeveless tops, shorts, or restrictive outfits.
+* **Avoid Strong Scents:** Please **do not wear perfume, cologne, deodorant, or heavily scented oils** as strong smells can distract fellow practitioners.
+* **Medication:** If you require personal medication, bring an adequate supply and **inform the retreat organizer** if you have any serious medical conditions.
+
+---
+
+### 📝 **Practice Management**
+
+* **Meditation Journaling (A Self-Retrospective Habit):** Please bring a **notebook and a pen/pencil**. Note-taking is an art and a great skill. Before and after your meditation sessions, do not hesitate to log your experience as a meditation journal. This helps you in the long run.
+* **Handling Discomfort:** If you face any discomfort in any way, please reach out to the **organizer or guide/teacher without hesitation** for help or support.
+* **Practical Essentials:** Bring your own **reusable water bottle**. You may bring your own seating cushion if desired.
+
+***
+
+## 🧘 ஒரு நாள் மெத்தா விபஸ்ஸனா முகாம் - வழிகாட்டுதல்கள்
 
 ### 💖 **மனநிலை மற்றும் பங்களிப்பு (Mindset & Engagement)**
 
@@ -48,59 +90,15 @@
 
 ---
 
+## 📡 Contact
+1. ☎️ +917680936123 - [Rajmahendra](/AboutRajmahendra.md) - Tamil, Hindi, English
+2. ☎️ +917506106787 - [Shubham](https://www.dhammasukha.in/about-us/teachers/shubham-mohod) - Hindi, Marathi, English
+3. 📧 hello@mettavipassana.org
 
-## 🧘 Final Retreat Guidelines: One-Day Metta-Vipassana
-
-
-### 💖 **Mindset & Engagement**
-
-* **Loving-Kindness and Acceptance:** We all come from different beliefs and viewpoints. When sharing or listening, please be mindful and focus on **building acceptance** rather than merely tolerating others. The core of this meditation is **loving-kindness (Metta)**.
-* **Keep a Smile Always:** Maintain a gentle smile throughout the retreat. It costs nothing to be happy on your face, in your mind, and in your heart.
-* **Spiritual Wellbeing, Not a Picnic:** This retreat is dedicated to **spiritual growth and learning**, not socializing or recreation. Please remain mindful and fully engaged in the practice that brought you here.
-* **Be a Supportive Team:** Your adherence to the guidelines helps everyone in the retreat grow.
-* **Kindness in Communication:** We strive to provide the best environment. When sharing any challenges with staff or guides, please do so with **kindness and mindfulness**.
-* **Noble Silence:** Observe **Noble Silence** (no talking, gesturing, or communication) to maximize your spiritual benefit and allow deep concentration.
-
----
-
-### ⏰ **Discipline & Time**
-
-* **Punctuality is Key:** Please be seated well before the session begins. **Respect everyone's time** by being in the hall promptly.
-* **The Power of Sīla (Morality):** Maintain **high discipline** throughout the day. A strong foundation in moral conduct (Sīla) is essential for deep meditation and insight.
-
----
-
-### 📵 **Electronic Devices & Meals**
-
-* **Silence Your Devices:** All mobile phones and electronic devices must be **switched off or strictly kept on silent mode** for the duration of the program. This day is your dedicated break from all regular hindrances.
-* **Meal Guidelines:** Please consume **only the food provided by the retreat organizers**. **Strictly avoid snacking outside of designated meal times. No outside food is allowed.**
-
----
-
-### 👚 **Health & Decorum**
-
-* **Dress Code (Simple and Modest):** Wear **simple, comfortable cotton clothing** that covers the shoulders, stomach, and knees. Avoid sleeveless tops, shorts, or restrictive outfits.
-* **Avoid Strong Scents:** Please **do not wear perfume, cologne, deodorant, or heavily scented oils** as strong smells can distract fellow practitioners.
-* **Medication:** If you require personal medication, bring an adequate supply and **inform the retreat organizer** if you have any serious medical conditions.
-
----
-
-### 📝 **Practice Management**
-
-* **Meditation Journaling (A Self-Retrospective Habit):** Please bring a **notebook and a pen/pencil**. Note-taking is an art and a great skill. Before and after your meditation sessions, do not hesitate to log your experience as a meditation journal. This helps you in the long run.
-* **Handling Discomfort:** If you face any discomfort in any way, please reach out to the **organizer or guide/teacher without hesitation** for help or support.
-* **Practical Essentials:** Bring your own **reusable water bottle**. You may bring your own seating cushion if desired.
-
----
-
-## :busts_in_silhouette: Contact
-1. :phone: +917680936123 - [Rajmahendra](/AboutRajmahendra.md) - English, Tamil
-2. :phone: +917506106787 - [Shubham](https://www.dhammasukha.in/about-us/teachers/shubham-mohod) - English, Hindi, Marathi
-3. :email: Email: hello@mettavipassana.org
-
-##  Follow us on web
+## 🕸️ Follow us on web
 * [Website - Old](https://www.dhammasukha.in) |  [Website - Under construction](https://www.mettavipassana.org)
 * [Youtube - English](https://www.youtube.com/@mettavipassanaway) |  [Youtube - Tamil](https://www.youtube.com/@mettavipassanawaytamil)
 * [Facebook](https://www.facebook.com/mettavipassanaway)
 * [Instagram](https://www.instagram.com/mettavipassanaway)
 * [Linkedin](https://www.linkedin.com/company/109274422)
+
