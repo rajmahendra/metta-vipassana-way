@@ -4,7 +4,7 @@
 | :--- | 
 | முதலில் என்னாலும் கண்களை மூடி தியானம் செய்ய முடியும் என்பதை உணர்ந்தேன். ஆறு 'R'கள் (6Rs) மனதில் ஆழமான பதிவை உண்டாக்கியதால், மனம் வேறு எங்கு செல்ல முற்பட்டாலும், '6Rs' தானாக உள்ளே வந்துவிட்டது. இதனால், நான் தியானத்தில் இருந்ததை என்னால் உணர முடிந்தது. நன்றி ஐயா. புன்னகை என் முகத்தில் மட்டுமல்ல, மனதிலும் ஏற்பட்டதை அறிந்தேன். எனது ஆன்மீக நண்பர் (Spiritual Friend) சொன்ன மெத்தாவை நான் உணர்ந்த மகிழ்ச்சியை விட, எனக்கு நான் மெத்தா சொல்லிக் கொண்டபோது பல மடங்கு மகிழ்ச்சியை உணர்ந்தேன். |
 | For the first time, I realized and felt confident that I am capable of meditating even with my eyes closed. The Six Rs (6Rs) have created such a profound impression on my mind that they automatically intervene whenever my mind begins to wander. As a result, I was clearly able to perceive when I was in a state of meditation. Thank you, sir. I realized that the practice brought a smile not only to my face but also to my heart and mind. The joy I felt when generating Mettā (loving-kindness) for myself was many times greater than the happiness I experienced when my Spiritual Friend shared Mettā with me. |
-| Jeyasundari - Madurai - Yoga Instructor - Nov 0, 2025 - One Day Residential Retreat |
+| Jeyasundari - Madurai - Yoga Instructor - Nov 8, 2025 - One Day Residential Retreat |
 ****
 
 |கண்ணன் - கோயம்புத்தூர் - தொழில்முனைவோர் - அக்டோபர் 21, 2025 - ஆன்லைன் வகுப்பு|
