@@ -6,6 +6,13 @@
 ### Your Responsibilities for this Course
 
 * You agree to take the **Six Precepts** in the morning and to read some supportive verses to help you set the correct moral and ethical mental environment to sustain your practice. This is very important.
+  * I undertake to keep the precept to abstain from killing or harming living beings, on purpose.
+  * I undertake to keep the precept to abstain from taking what is not given.( do not steal )
+  * I undertake to keep the precept to abstain from any wrong sexual (and sensual) activity. ( not engage in wrongful sexual and sensual desires )
+  * I undertake to keep the precept to abstain from telling lies, harsh speech, gossip, or slander.
+  * I undertake to keep the precept to abstain from taking drugs and alcohol.
+  * I undertake to keep the precept to be loving and kind to myself and all beings.
+
 
 * You agree to sit in meditation at least **twice daily** (morning and evening) for a minimum of **30 minutes**, and to perform a short walking meditation for at least **15 to 20 minutes daily**. Many people walk during their lunch break or after their evening meal; whatever is possible for you is fine.
 
