@@ -10,7 +10,7 @@
 
 ***
 
-1. **Program Duration:** You agree to stay till the end of the program, meaning you must **arrive before December 11th at 3 PM** and **leave after December 21st at 9 AM**. This commitment is essential to complete the program's intended scope.
+1. **Program Duration:** You agree to stay till the end of the program, meaning you must  This commitment is essential to complete the program's intended scope.
 2. **Noble Silence:** You agree to follow **Noble Silence** from the time it is announced. This practice is crucial for maintaining clarity of mind at all times.
 3. **Timetable Adherence:** You must **stick to the timetable**. The schedule is fixed ("carved on stone") and will only change if explicitly announced publicly beforehand.
 4. **Compound Restriction:** You are **not allowed to move out of the compound**. Please help us manage this journey by staying within the premises; we cannot spend time searching for individuals.
